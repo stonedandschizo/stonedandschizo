@@ -162,10 +162,6 @@ S T O N E D A N D S C H I Z O
 </p>
 
 
-
-
-
-> bjorn ooners dni
     
 <p align="center"> 
 <img width="400" src="https://64.media.tumblr.com/78edd26370ba7f6cefc3fb2fabd9951a/e25b04731ab58b96-e0/s1280x1920/33038f4a13f58592ddc08741d72082327e5c75e3.gifv"
@@ -176,3 +172,7 @@ S T O N E D A N D S C H I Z O
 <p align="center">
  <img width="300" src="https://i.imgur.com/vQfcUIH.jpeg"
    </p>
+
+
+
+> bjorn gooners dni
