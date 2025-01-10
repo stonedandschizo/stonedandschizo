@@ -161,6 +161,11 @@ S T O N E D A N D S C H I Z O
  <img width="80" src="https://64.media.tumblr.com/9f81511f5041e8d2f6adcebfc0a4189e/672f30845d018425-7e/s100x200/4ceaf436e6e3cca101796421350e181b856d325b.gifv"
 </p>
 
+
+
+
+
+> bjorn ooners dni
     
 <p align="center"> 
 <img width="400" src="https://64.media.tumblr.com/78edd26370ba7f6cefc3fb2fabd9951a/e25b04731ab58b96-e0/s1280x1920/33038f4a13f58592ddc08741d72082327e5c75e3.gifv"
