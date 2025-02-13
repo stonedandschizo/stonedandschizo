@@ -21,7 +21,7 @@
    </p> 
    <p align="center"
       <br> ‎(<i>he/they</i>) <i>𝓣𝓱𝓮 𝓓𝓸𝓸𝓴𝓲𝓮 𝓜𝓸𝓷𝓼𝓽𝓮𝓻</i> 
- <br> <sup>schizo & adhd</sup> <img width="25" src='https://64.media.tumblr.com/bb8615b8d30884bfae303cb8e3925100/ed6f156fe1f139e7-ad/s75x75_c1/9cbff21bbcd944aeb6ee133f0d0b7eeb8ec2f570.gifv'> <sup>a faggot </sup>
+ <br> <sup>schizo & adhd</sup> <img width="25" src="https://64.media.tumblr.com/246fbb9d9cdafb69fcb26c050c4a042b/49942f089b0875df-ed/s75x75_c1/f032518fb829ce1866f3fca5bb26480d74d736a0.gifv"> <sup>a faggot </sup>
  <br><sub> <a href="https://arab.org/click-to-help/palestine/"> Do your daily clicks!  </a></sub>
 </p>
 
@@ -31,7 +31,7 @@
 </p>
  
    <p align="center"
-     <br><sub> <a href="https://patreon.com/seraphimblade/about">INFO</a> <img width="25" src='https://64.media.tumblr.com/bb8615b8d30884bfae303cb8e3925100/ed6f156fe1f139e7-ad/s75x75_c1/9cbff21bbcd944aeb6ee133f0d0b7eeb8ec2f570.gifv'> <a href="https://seraphimblade.atabook.org">ATABOOK</a>
+     <br><sub> <a href="https://patreon.com/seraphimblade/about">INFO</a> <img width="25" src='https://64.media.tumblr.com/30714f80e7b6a13520d55a047ec3cd08/711abcad31e2d174-ea/s75x75_c1/7cccb09f7241313216102ab4b008416a9f5c1936.gifv'> <a href="https://seraphimblade.atabook.org">ATABOOK</a>
     
  <p align="center"> 
 <img width="400" src="https://64.media.tumblr.com/c9c0d8d98a068ac05337b3a92e441fd6/a2b9a9b92798b874-a7/s640x960/60e0c229fd5466526c2d33486a318af2e165e819.gifv"
