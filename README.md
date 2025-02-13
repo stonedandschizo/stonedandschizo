@@ -169,7 +169,7 @@
 
  </h4>
 <p align="center">
- <img width="300" src="https://i.imgur.com/vQfcUIH.jpeg"
+ <img width="300" src="https://i.imgur.com/SA89iQu.gif"
    </p>
 
 
