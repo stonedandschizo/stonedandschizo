@@ -2,7 +2,7 @@
 <br>            <sup>‎<i>    ⊹ ࣪ ˖    Slurp up and ship out.</i></sup>
 <h4 align="center"
  
-⊹ ࣪ ˖  ![](https://komarev.com/ghpvc/?username=stonedandschizo&label=𐙚+profile+views+++&color=025070&abbreviated=true)  𖦹 ๋࣭ ⭑ 
+⊹ ࣪ ˖  ![](https://komarev.com/ghpvc/?username=stonedandschizo&label=𐙚+profile+views+++++&color=025070&abbreviated=true)  𖦹 ๋࣭ ⭑ 
 
  </h4>
 <p align="center">
