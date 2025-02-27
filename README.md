@@ -32,6 +32,9 @@
  
    <p align="center"
      <br><sub> <a href="https://patreon.com/seraphimblade/about">INFO</a> <img width="25" src='https://64.media.tumblr.com/30714f80e7b6a13520d55a047ec3cd08/711abcad31e2d174-ea/s75x75_c1/7cccb09f7241313216102ab4b008416a9f5c1936.gifv'> <a href="https://seraphimblade.atabook.org">ATABOOK</a>
+<img width="25" src='https://64.media.tumblr.com/30714f80e7b6a13520d55a047ec3cd08/711abcad31e2d174-ea/s75x75_c1/7cccb09f7241313216102ab4b008416a9f5c1936.gifv'> <a 
+href="https://jakeinoffmuller.straw.page">SP</sub>
+
     
  <p align="center"> 
 <img width="400" src="https://64.media.tumblr.com/c9c0d8d98a068ac05337b3a92e441fd6/a2b9a9b92798b874-a7/s640x960/60e0c229fd5466526c2d33486a318af2e165e819.gifv"
