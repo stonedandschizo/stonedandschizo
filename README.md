@@ -35,6 +35,13 @@
 <img width="25" src='https://64.media.tumblr.com/30714f80e7b6a13520d55a047ec3cd08/711abcad31e2d174-ea/s75x75_c1/7cccb09f7241313216102ab4b008416a9f5c1936.gifv'> <a 
 href="https://jakeinoffmuller.straw.page">SP</sub>
 
+  <p align="center"
+     <br><sub><a >i HATE pony dot town</sub>
+
+  <p align="center"
+   <br><sub>   <img width="110" src="https://cdn.discordapp.com/attachments/1268116929948680256/1287552339095453828/Untitled599_20240915215155-1.jpg?ex=680233cf&is=6800e24f&hm=49687a82f9198d32db7c46e8b564eb180bd4c45d02a519f179f80a3f73fa5793&"
+</p>
+
     
  <p align="center"> 
 <img width="400" src="https://64.media.tumblr.com/c9c0d8d98a068ac05337b3a92e441fd6/a2b9a9b92798b874-a7/s640x960/60e0c229fd5466526c2d33486a318af2e165e819.gifv"
