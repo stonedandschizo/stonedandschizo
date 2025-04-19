@@ -1,8 +1,7 @@
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rudrrlz67xzwmkh6eq4jqfcwv&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=rudrrlz67xzwmkh6eq4jqfcwv&redirect=true) 
+
 
 <br>            <sup>‎<i>    ⊹ ࣪ ˖    Slurp up and ship out.</i></sup>
-
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rudrrlz67xzwmkh6eq4jqfcwv&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=rudrrlz67xzwmkh6eq4jqfcwv&redirect=true) 
 
 <h4 align="center"
  
