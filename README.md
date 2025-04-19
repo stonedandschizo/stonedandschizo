@@ -36,7 +36,7 @@
 href="https://jakeinoffmuller.straw.page">SP</sub>
 
   <p align="center"
-     <br><sub><a >i HATE pony dot town</sub>
+     <br><sub><a >i HATE pony dot town and everyone in it #amen</sub>
 
   <p align="center"
    <br><sub>   <img width="110" src="https://cdn.discordapp.com/attachments/1268116929948680256/1287552339095453828/Untitled599_20240915215155-1.jpg?ex=680233cf&is=6800e24f&hm=49687a82f9198d32db7c46e8b564eb180bd4c45d02a519f179f80a3f73fa5793&"
