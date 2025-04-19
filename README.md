@@ -9,7 +9,7 @@
  <img width="900" src="https://pbs.twimg.com/media/Gika-jdWwAEFojT?format=jpg&name=medium"
    </p>
     <p align="center"> 
-  <italic>${\color{#025070}➤}$⠀art by pastrypaladin
+  <italic>${\color{#025070}➤}$⠀art by roomtempwaffle
  <p align="center"> 
  <img width="600" src="https://i.imgur.com/iRwcG4p.gif"
  </p>
