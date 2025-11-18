@@ -30,7 +30,7 @@
 
 
  <p align="center"
-   <br><sub>   <img width="80" src="https://imgur.com/AgLJexu"
+   <br><sub>   <img width="80" src="https://static.wikia.nocookie.net/fortnite/images/5/5c/Slurp_Jonesy_-_Outfit_-_Fortnite.png/revision/latest?cb=20200317122721"
 </p>
  
    <p align="center"
@@ -237,7 +237,4 @@ href="https://jakeinoffmuller.straw.page">SP</sub>
 
 
 
-> bjorn gooners dni
-> 
-
-
+> kissing jake.muller mwahmwah
