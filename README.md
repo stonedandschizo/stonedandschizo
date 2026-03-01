@@ -17,7 +17,7 @@
  </p>
 
  
-<img src="https://static.wikia.nocookie.net/fortnite/images/5/5c/Slurp_Jonesy_-_Outfit_-_Fortnite.png/revision/latest?cb=20200317122721" width="320" align="right">
+<img src="https://64.media.tumblr.com/dd90816931e64fb963f6cb70eba6e26b/2383ccbbb79b0a29-54/s1280x1920/8201fc578f50a1b3717127356c7f4ba24417ec37.pnj" width="320" align="right">
 
 </div>
  
