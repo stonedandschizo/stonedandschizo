@@ -1,4 +1,3 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rudrrlz67xzwmkh6eq4jqfcwv&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=rudrrlz67xzwmkh6eq4jqfcwv&redirect=true) 
 
 
 <br>            <sup>‎<i>    ⊹ ࣪ ˖    Slurp up and ship out.</i></sup>
@@ -16,33 +15,59 @@
  <p align="center"> 
  <img width="600" src="https://i.imgur.com/iRwcG4p.gif"
  </p>
+
  
+<img src="https://static.wikia.nocookie.net/fortnite/images/5/5c/Slurp_Jonesy_-_Outfit_-_Fortnite.png/revision/latest?cb=20200317122721" width="320" align="right">
 
+</div>
+ 
+ <table>
+    <tr></tr>
+      <td>
+        <div align="center">
+$\color{#f9ff89}{\textsf{he/they}}$ $\color{#5ce63a}{\textsf{ 𝓣𝓱𝓮 𝓓𝓸𝓸𝓴𝓲𝓮 𝓜𝓸𝓷𝓼𝓽𝓮𝓻 }}$<br>
+$\color{#5ce63a}{\textsf{SEÁN}}$ $\color{#f9ff89}{\textsf{adhd + schizoaffective}}$ <br>
+         <img width="25" src="https://64.media.tumblr.com/246fbb9d9cdafb69fcb26c050c4a042b/49942f089b0875df-ed/s75x75_c1/f032518fb829ce1866f3fca5bb26480d74d736a0.gifv">
+<br>
+<sup><sup>$\color{#f9ff89}{\textsf{dont be scared to message me but Im a very busy lad! I tend to not get caught up in things and forget to reply, pls just msg me again as a reminder lol}}$</sup></sup><br>
+<sup><sup>$\color{#f9ff89}{\textsf{i love re6 msg me if u wanna play re6 i love re6}}$</sup></sup><br>
+ </td>
+      </tr>
+  </table>  
 
+ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rudrrlz67xzwmkh6eq4jqfcwv&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=rudrrlz67xzwmkh6eq4jqfcwv&redirect=true) 
+   <table>
+    <tr></tr>
+      <td>
+<details>
+<summary>$\color{#5ce63a}{\textsf{about and links}}$</summary>
 
-
-   </p> 
-   <p align="center"
-      <br> ‎(<i>he/they</i>) <i>𝓣𝓱𝓮 𝓓𝓸𝓸𝓴𝓲𝓮 𝓜𝓸𝓷𝓼𝓽𝓮𝓻</i> 
- <br> <sup>schizo & adhd</sup> <img width="25" src="https://64.media.tumblr.com/246fbb9d9cdafb69fcb26c050c4a042b/49942f089b0875df-ed/s75x75_c1/f032518fb829ce1866f3fca5bb26480d74d736a0.gifv"> <sup>a faggot </sup>
- <br><sub> <a href="https://arab.org/click-to-help/palestine/"> Do your daily clicks!  </a></sub>
+$\color{#f9ff89}{\textsf{blah blah blah}}$ 
+<img width="25" src='https://64.media.tumblr.com/30714f80e7b6a13520d55a047ec3cd08/711abcad31e2d174-ea/s75x75_c1/7cccb09f7241313216102ab4b008416a9f5c1936.gifv'>
+ <br><sub> <a href="https://arab.org/click-to-help/palestine/"> <italic> Do your daily clicks! <italic> </a></sub>
 </p>
 
+[commissions](https://seraphimblade.carrd.co/) + [ata](https://seraphimblade.atabook.org) + [strawpage](https://jakeinoffmuller.straw.page) + [pt](https://patreon.com/SeraphimBlade?utm_medium=clipboard_copy&utm_source=copyLink&utm_campaign=creatorshare_creator&utm_content=join_link)
 
- <p align="center"
-   <br><sub>   <img width="80" src="https://static.wikia.nocookie.net/fortnite/images/5/5c/Slurp_Jonesy_-_Outfit_-_Fortnite.png/revision/latest?cb=20200317122721"
-</p>
- 
-   <p align="center"
-     <br><sub> <a href="https://patreon.com/seraphimblade/about">INFO</a> <img width="25" src='https://64.media.tumblr.com/30714f80e7b6a13520d55a047ec3cd08/711abcad31e2d174-ea/s75x75_c1/7cccb09f7241313216102ab4b008416a9f5c1936.gifv'> <a href="https://seraphimblade.atabook.org">ATABOOK</a>
-<img width="25" src='https://64.media.tumblr.com/30714f80e7b6a13520d55a047ec3cd08/711abcad31e2d174-ea/s75x75_c1/7cccb09f7241313216102ab4b008416a9f5c1936.gifv'> <a 
-href="https://jakeinoffmuller.straw.page">SP</sub>
+</details>
+ </td>
+      </tr>
+  </table>
+
+
+         
+  <p align="right"> 
+  <italic>${\color{#025070}a faggot ➤}$
+
+
+
+     
 
   <p align="center"
      <br><sub><a >i HATE pony dot town and everyone in it #amen</sub>
 
   <p align="center"
-   <br><sub>   <img width="110" src="https://cdn.discordapp.com/attachments/1268116929948680256/1287552339095453828/Untitled599_20240915215155-1.jpg?ex=680233cf&is=6800e24f&hm=49687a82f9198d32db7c46e8b564eb180bd4c45d02a519f179f80a3f73fa5793&"
+   <br><sub>   <img width="190" src="https://i.imgur.com/7AypqAy.gif"
 </p>
 
     
@@ -212,8 +237,38 @@ href="https://jakeinoffmuller.straw.page">SP</sub>
 </p>
  <img width="80" src="https://64.media.tumblr.com/dd8e712c23469b146fb0a5e3353e2e85/99b03e9f0218f144-c3/s250x400/ce0de7ccd80a9707168094336bd0bb4fc59c81cf.gifv"
 </p>
-
-
+ <img width="80" src="https://64.media.tumblr.com/823f28bdfa1c3fcf839a3fba152cbfd0/8fb2527e26ea09fc-ca/s100x200/6c341af5213b4e4801e1d115b21a6bb824ec347b.gifv"
+</p> 
+ <img width="80" src="https://64.media.tumblr.com/c90eb8e618168135d4b001bec9643b94/ab3220ee00b4f024-51/s100x200/def34c7b3d486498938d3fbd41b9a67a9b81c5ff.webp"
+</p>
+ <img width="80" src="https://64.media.tumblr.com/a058b6df5803aceaa24048ab4b77cb34/82b09546462aa32b-5f/s100x200/92220f50a2c9d7170e6f41edc345eef41e1bd8bd.gifv"
+</p>
+ <img width="80" src="https://64.media.tumblr.com/e76724f41895e2bfd2752ab8e940a1e7/73eef17597a75fa8-e2/s250x400/e9dbb61bf747c23bb944502615ba74fdfac01c85.pnj"
+</p>
+  <img width="80" src=""
+</p>
+ <img width="80" src=""
+</p>
+ <img width="80" src=""
+</p>
+ <img width="80" src=""
+</p>
+   <img width="80" src=""
+</p>
+  <img width="80" src=""
+</p>
+ <img width="80" src=""
+</p>
+ <img width="80" src=""
+</p>
+ <img width="80" src=""
+</p> 
+ <img width="80" src=""
+</p>
+ <img width="80" src=""
+</p>
+ <img width="80" src=""
+</p>
 
 
 
