@@ -4,7 +4,7 @@
 
 <h4 align="center"
  
-⊹ ࣪ ˖  ![](https://komarev.com/ghpvc/?username=stonedandschizo&label=𐙚+profile+views+++&color=025070)  𖦹 ๋࣭ ⭑ 
+⊹ ࣪ ˖  ![](https://komarev.com/ghpvc/?username=stonedandschizo&label=.+fr+iendz+++++&color=025070)  𖦹 ๋࣭ ⭑ 
 
  </h4>
 <p align="center">
