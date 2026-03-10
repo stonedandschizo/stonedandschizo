@@ -4,7 +4,7 @@
 
 <h4 align="center"
  
-⊹ ࣪ ˖  ![](https://komarev.com/ghpvc/?username=stonedandschizo&label=.+fr+iendz+++++&color=025070)  𖦹 ๋࣭ ⭑ 
+⊹ ࣪ ˖  ![](https://komarev.com/ghpvc/?username=stonedandschizo&style=plastic&label=.+fr+iendz+++++&color=025070)  𖦹 ๋࣭ ⭑ 
 
  </h4>
 <p align="center">
@@ -306,3 +306,14 @@ $\color{#f9ff89}{\textsf{blah blah blah}}$
 
 
 > kissing jake.muller mwahmwah
+
+
+
+<p align="center"> 
+<img width="400" src="https://i.imgur.com/Ot5x3aw.png" 
+</p>
+
+ 
+   <p align="center"> 
+   ${\color{#a40064}➤}$⠀comm by <a href="https://toyhou.se/sparkzymiles" target="_blank">sparkzymiles</a>
+  </p>
