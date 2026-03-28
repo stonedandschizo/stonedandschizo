@@ -1,17 +1,17 @@
 
 
-<br>            <sup>‎<i>$\color{#025070}{\textsf{    ⊹ ࣪ ˖    Slurp up and ship out.}}$</i></sup>
+<br>            <sup>‎<i>$\color{#1ba9b5}{\textsf{    ⊹ ࣪ ˖    Slurp up and ship out.}}$</i></sup>
 
 <h4 align="center"
  
-⊹ ࣪ ˖  ![](https://komarev.com/ghpvc/?username=stonedandschizo&style=plastic&label=.+fr+iendz+++++&color=025070)  𖦹 ๋࣭ ⭑ 
+$\color{#1ae8d4}{\textsf{⊹ ࣪ ˖  }}$![](https://komarev.com/ghpvc/?username=stonedandschizo&style=plastic&label=.+fr+iendz+++++&color=1ba9b5)$\color{#1ae8d4}{\textsf{  𖦹 ๋࣭ ⭑ }}$
 
  </h4>
 <p align="center">
  <img width="900" src="https://pbs.twimg.com/media/Gika-jdWwAEFojT?format=jpg&name=medium"
    </p>
     <p align="center"> 
-  ${\color{#025070}➤}$ $\color{#5ce63a}{\textsf{art by roomtempwaffle}}$⠀
+  ${\color{#025070}➤}$ $\color{#1ba9b5}{\textsf{art by roomtempwaffle}}$⠀
  <p align="center"> 
  <img width="600" src="https://i.imgur.com/iRwcG4p.gif"
  </p>
@@ -57,7 +57,7 @@ $\color{#f9ff89}{\textsf{blah blah blah}}$
 
          
   <p align="right"> 
-  <italic>${\color{#025070}a faggot ➤}$
+  <italic>${\color{#1ba9b5}a faggot ➤}$
 
 
 
