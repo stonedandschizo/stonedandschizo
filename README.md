@@ -1,6 +1,6 @@
 
 
-<br>            <sup>‎<i>    ⊹ ࣪ ˖    Slurp up and ship out.</i></sup>
+<br>            <sup>‎<i>$\color{#025070}{\textsf{    ⊹ ࣪ ˖    Slurp up and ship out.}}$</i></sup>
 
 <h4 align="center"
  
@@ -11,7 +11,7 @@
  <img width="900" src="https://pbs.twimg.com/media/Gika-jdWwAEFojT?format=jpg&name=medium"
    </p>
     <p align="center"> 
-  <italic>${\color{#025070}➤}$⠀art by roomtempwaffle
+  ${\color{#025070}➤}$ $\color{#5ce63a}{\textsf{art by roomtempwaffle}}$⠀
  <p align="center"> 
  <img width="600" src="https://i.imgur.com/iRwcG4p.gif"
  </p>
@@ -29,8 +29,8 @@ $\color{#f9ff89}{\textsf{he/they}}$ $\color{#5ce63a}{\textsf{ 𝓣𝓱𝓮 𝓓�
 $\color{#5ce63a}{\textsf{SEÁN}}$ $\color{#f9ff89}{\textsf{adhd + schizoaffective}}$ <br>
          <img width="25" src="https://64.media.tumblr.com/246fbb9d9cdafb69fcb26c050c4a042b/49942f089b0875df-ed/s75x75_c1/f032518fb829ce1866f3fca5bb26480d74d736a0.gifv">
 <br>
-<sup><sup>$\color{#f9ff89}{\textsf{dont be scared to message me but Im a very busy lad! I tend to get caught up in things and forget to reply, pls just msg me again as a reminder lol}}$</sup></sup><br>
-<sup><sup>$\color{#f9ff89}{\textsf{i love re6 msg me if u wanna play re6 i love re6}}$</sup></sup><br>
+<sup>$\color{#f9ff89}{\textsf{dont be scared to message me but Im a very busy lad! I tend to get caught up in things and forget to reply, pls just msg me again as a reminder lol}}$</sup><br>
+<sup>$\color{#f9ff89}{\textsf{i love re6 msg me if u wanna play re6 i love re6}}$</sup><br>
  </td>
       </tr>
   </table>  
@@ -61,13 +61,12 @@ $\color{#f9ff89}{\textsf{blah blah blah}}$
 
 
 
-     
 
   <p align="center"
-     <br><sub><a >i HATE pony dot town and everyone in it #amen</sub>
+     <italics>$\color{#5ce63a}{\textsf{i HATE pony dot town and everyone in it amen }}$</i>
 
   <p align="center"
-<br>            <sup>‎<i>    ⊹ ࣪ ˖   catch me on ajc tho i draw and stuff- hicryl03 :3c</i></sup>
+     <italics>$\color{#5ce63a}{\textsf{    ⊹ ࣪ ˖   catch me on ajc tho i draw and stuff- hicryl03 :3c }}$</i>
 
 
 
@@ -76,12 +75,14 @@ $\color{#f9ff89}{\textsf{blah blah blah}}$
       <br><sub>   <img width="190" src="https://i.imgur.com/7AypqAy.gif"
 </p>
 
-    
- <p align="center"> 
-<img width="400" src="https://64.media.tumblr.com/c9c0d8d98a068ac05337b3a92e441fd6/a2b9a9b92798b874-a7/s640x960/60e0c229fd5466526c2d33486a318af2e165e819.gifv"
- </p>
 
-  
+
+ <p align="center"> 
+   <table>
+    <tr></tr>
+      <td>
+<details>
+<summary>$\color{#5ce63a}{\textsf{stamp hell}}$</summary>
 <p align="center">
 <img width="80" src="https://64.media.tumblr.com/24dfdb46187161691d44e7819e740221/3671a26edef10d5d-bc/s100x200/2e00a49b106c65faa48361518ef6c03047ddc1ef.webp"
 </p>
@@ -283,7 +284,10 @@ $\color{#f9ff89}{\textsf{blah blah blah}}$
 </p>
  <img width="80" src="https://64.media.tumblr.com/e5c725690e74ebca809533228809fc3e/f8c08c604d48109d-1b/s100x200/b384ca60b9d8a7e8e08b2c37daf07f5019a4abc5.gifv"
 </p>
-
+</details>
+ </td>
+      </tr>
+  </table>
 
 
 
@@ -315,5 +319,5 @@ $\color{#f9ff89}{\textsf{blah blah blah}}$
 
  
    <p align="center"> 
-   ${\color{#a40064}➤}$⠀comm by <a href="https://toyhou.se/sparkzymiles" target="_blank">sparkzymiles</a>
+   ${\color{#a40064}➤}$ $\color{#5ce63a}{\textsf{comm by}}$ <a href="https://toyhou.se/sparkzymiles" target="_blank">sparkzymiles</a>
   </p>
