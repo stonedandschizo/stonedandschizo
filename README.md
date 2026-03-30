@@ -354,6 +354,8 @@ $\color{#f9ff89}{\textsf{blah blah blah}}$
 </p>
  <img width="80" src="https://64.media.tumblr.com/d1cacea79a34433c16ad8e45ba7a87d3/5f8d8d058bfe76ef-74/s100x200/61bb7002597529f03a0fb3b595e549dfd4dc3d64.gifv"
 </p>
+
+  [![ts better work](https://img.youtube.com/vi/GVq8amyx-fA/0.jpg)](https://youtu.be/GVq8amyx-fA)
 </details>
  </td>
       </tr>
