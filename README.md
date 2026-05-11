@@ -29,7 +29,7 @@ $\color{#f9ff89}{\textsf{he/they}}$ $\color{#5ce63a}{\textsf{ 𝓣𝓱𝓮 𝓓�
 $\color{#5ce63a}{\textsf{SEÁN}}$ $\color{#f9ff89}{\textsf{adhd + schizoaffective}}$ <br>
          <img width="25" src="https://64.media.tumblr.com/246fbb9d9cdafb69fcb26c050c4a042b/49942f089b0875df-ed/s75x75_c1/f032518fb829ce1866f3fca5bb26480d74d736a0.gifv">
 <br>
-<sup>$\color{#f9ff89}{\textsf{dont be scared to message me but Im a very busy lad! I tend to get caught up in things and forget to reply, pls just msg me again as a reminder lol}}$</sup><br>
+<sup>$\color{#f9ff89}{\textsf{cuddling encouraged!!! i am very shy so i wont speak unless spoken to but im chill swear}}$</sup><br>
 <sup>$\color{#f9ff89}{\textsf{i love re6 msg me if u wanna play re6 i love re6}}$</sup><br>
  </td>
       </tr>
