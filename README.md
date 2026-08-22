@@ -1,14 +1,14 @@
+<br>  <sup>‎<i>$\color{#1ba9b5}{\textsf{   ⊹ ࣪ ˖    J u s t  y o u  m e  a n d  t h i s   w i r e .  }}$</i></sup>
+
+<h4 align="center"
+ 
+$\color{#1ae8d4}{\textsf{⊹ ࣪ ˖  }}$![](https://komarev.com/ghpvc/?username=stonedandschizo&style=plastic&label=.+fr+iendz+++++&color=1ba9b5)$\color{#1ae8d4}{\textsf{  𖦹 ๋࣭ ⭑ }}$
+
  </h4>
 <p align="center">
  <img width="190" src="https://64.media.tumblr.com/fee6602e65084eba3592709a12bc42b7/df1062db53cfc770-11/s640x960/8034b8d7d31169cbec42c167023ac1f2efa54d85.gifv"
    </p>
     <p align="center"> 
-
-<br>            <sup>‎<i>$\color{#1ba9b5}{\textsf{    ⊹ ࣪ ˖    Slurp up and ship out.}}$</i></sup>
-
-<h4 align="center"
- 
-$\color{#1ae8d4}{\textsf{⊹ ࣪ ˖  }}$![](https://komarev.com/ghpvc/?username=stonedandschizo&style=plastic&label=.+fr+iendz+++++&color=1ba9b5)$\color{#1ae8d4}{\textsf{  𖦹 ๋࣭ ⭑ }}$
 
  </h4>
 <p align="center">
@@ -23,28 +23,32 @@ $\color{#1ae8d4}{\textsf{⊹ ࣪ ˖  }}$![](https://komarev.com/ghpvc/?username=
  
 <img src="https://64.media.tumblr.com/dd90816931e64fb963f6cb70eba6e26b/2383ccbbb79b0a29-54/s1280x1920/8201fc578f50a1b3717127356c7f4ba24417ec37.pnj" width="320" align="right">
 
+  <p align="right"> 
+  <italic>${\color{#1ba9b5}a faggot ➤}$
+
 </div>
- 
+
  <table>
     <tr></tr>
       <td>
-        <div align="center">
+        <div align="middle">
 $\color{#f9ff89}{\textsf{he/they}}$ $\color{#5ce63a}{\textsf{ 𝓣𝓱𝓮 𝓓𝓸𝓸𝓴𝓲𝓮 𝓜𝓸𝓷𝓼𝓽𝓮𝓻 }}$<br>
 $\color{#5ce63a}{\textsf{SEÁN}}$ $\color{#f9ff89}{\textsf{adhd + schizoaffective}}$ <br>
          <img width="25" src="https://64.media.tumblr.com/246fbb9d9cdafb69fcb26c050c4a042b/49942f089b0875df-ed/s75x75_c1/f032518fb829ce1866f3fca5bb26480d74d736a0.gifv">
 <br>
 <sup>$\color{#f9ff89}{\textsf{cuddling encouraged!!! i am very shy so i wont speak unless spoken to but im chill swear}}$</sup><br>
-<sup>$\color{#f9ff89}{\textsf{i love re6 msg me if u wanna play re6 i love re6 (ps only i poor}}$</sup><br>
+<sup>$\color{#f9ff89}{\textsf{life too short to care about inspo or copiers have fun}}$</sup><br>
  </td>
       </tr>
   </table>  
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rudrrlz67xzwmkh6eq4jqfcwv&cover_image=true&theme=natemoo-re&show_offline=false&background_color=053a48&interchange=false&profanity=false&hide_remaster=false&bar_color=0ff207&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+ 
+         
+  <div align="right">
    <table>
     <tr></tr>
       <td>
 <details>
-<summary>$\color{#5ce63a}{\textsf{about and links}}$</summary>
+<summary>$\color{#5ce63a}{\textsf{links}}$</summary>
 
 $\color{#f9ff89}{\textsf{blah blah blah}}$ 
 <img width="25" src='https://64.media.tumblr.com/30714f80e7b6a13520d55a047ec3cd08/711abcad31e2d174-ea/s75x75_c1/7cccb09f7241313216102ab4b008416a9f5c1936.gifv'>
@@ -55,29 +59,43 @@ $\color{#f9ff89}{\textsf{blah blah blah}}$
 
 </details>
  </td>
+ </details>
       </tr>
   </table>
 
+   <img src="https://i.imgur.com/7AypqAy.gif" width="320" align="right">
 
-         
-  <p align="right"> 
-  <italic>${\color{#1ba9b5}a faggot ➤}$
-
-
-
-
-  <p align="center"
-     <italics>$\color{#5ce63a}{\textsf{i HATE pony dot town and everyone in it amen }}$</i>
-
-  <p align="center"
-     <italics>$\color{#5ce63a}{\textsf{    ⊹ ࣪ ˖   catch me on ajc tho i draw and stuff- hicryl03 :3c }}$</i>
-
-
-
-
-  <p align="center"
-      <br><sub>   <img width="190" src="https://i.imgur.com/7AypqAy.gif"
+   <a href="https://vgen.co/dearwoes">
+ <img src="https://64.media.tumblr.com/e5ee6e4bbba8aedb72b1738bc413ad43/801b570c56b64d69-ed/s640x960/fde3f90be0d1e27d8e4aa3202fffd93022a84fa9.gifv" width="315" align="right">
+   </a>
+   
+   
+   
+  
+   <div align="left">
+   <table>
+    <tr></tr>
+      <td>
+<details>
+<summary>$\color{#5ce63a}{\textsf{yadda}}$</summary>
+      $\color{#f9ff89}{\textsf{ i HATE pony dot town and everyone in it amen  }}$<br>
+      <img width="25" src="https://64.media.tumblr.com/246fbb9d9cdafb69fcb26c050c4a042b/49942f089b0875df-ed/s75x75_c1/f032518fb829ce1866f3fca5bb26480d74d736a0.gifv">
+     <sup>$\color{#f9ff89}{\textsf{    ⊹ ࣪ ˖   catch me on ajc tho i draw and stuff- hicryl03 :3c }}$</sup><br>
+   
 </p>
+
+
+
+</details>
+ </td>
+      </tr>
+  </table>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rudrrlz67xzwmkh6eq4jqfcwv&cover_image=true&theme=natemoo-re&show_offline=false&background_color=053a48&interchange=false&profanity=false&hide_remaster=false&bar_color=0ff207&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+         
+
+
+
 
 
 
@@ -376,16 +394,8 @@ $\color{#f9ff89}{\textsf{blah blah blah}}$
 
 
 
-    
-<p align="center"> 
-<img width="400" src="https://64.media.tumblr.com/c9c0d8d98a068ac05337b3a92e441fd6/a2b9a9b92798b874-a7/s640x960/60e0c229fd5466526c2d33486a318af2e165e819.gifv"
- </p>
 
 
- </h4>
-<p align="center">
- <img width="300" src="https://i.imgur.com/SA89iQu.gif"
-   </p>
 
 
 
@@ -394,7 +404,7 @@ $\color{#f9ff89}{\textsf{blah blah blah}}$
 
 
 <p align="center"> 
-<img width="400" src="https://i.imgur.com/Ot5x3aw.png" 
+<img width="350" src="https://i.imgur.com/Ot5x3aw.png" 
 </p>
 
  
