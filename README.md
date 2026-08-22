@@ -6,9 +6,12 @@ $\color{#1ae8d4}{\textsf{⊹ ࣪ ˖  }}$![](https://komarev.com/ghpvc/?username=
 
  </h4>
 <p align="center">
+  <a href="https://tiktok.com/@nahctar?_r=1&_t=ZP-996a3V1ONZP">
  <img width="190" src="https://64.media.tumblr.com/fee6602e65084eba3592709a12bc42b7/df1062db53cfc770-11/s640x960/8034b8d7d31169cbec42c167023ac1f2efa54d85.gifv"
    </p>
-    <p align="center"> 
+  </a>
+  
+
 
  </h4>
 <p align="center">
@@ -21,7 +24,9 @@ $\color{#1ae8d4}{\textsf{⊹ ࣪ ˖  }}$![](https://komarev.com/ghpvc/?username=
  </p>
 
  
-<img src="https://64.media.tumblr.com/dd90816931e64fb963f6cb70eba6e26b/2383ccbbb79b0a29-54/s1280x1920/8201fc578f50a1b3717127356c7f4ba24417ec37.pnj" width="320" align="right">
+
+ <img src="https://64.media.tumblr.com/dd90816931e64fb963f6cb70eba6e26b/2383ccbbb79b0a29-54/s1280x1920/8201fc578f50a1b3717127356c7f4ba24417ec37.pnj" width="320" align="right">
+
 
   <p align="right"> 
   <italic>${\color{#1ba9b5}a faggot ➤}$
