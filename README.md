@@ -35,7 +35,7 @@ $\color{#5ce63a}{\textsf{SEÁN}}$ $\color{#f9ff89}{\textsf{adhd + schizoaffectiv
       </tr>
   </table>  
 
- [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rudrrlz67xzwmkh6eq4jqfcwv&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=rudrrlz67xzwmkh6eq4jqfcwv&redirect=true) 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rudrrlz67xzwmkh6eq4jqfcwv&cover_image=true&theme=natemoo-re&show_offline=false&background_color=053a48&interchange=false&profanity=false&hide_remaster=false&bar_color=0ff207&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
    <table>
     <tr></tr>
       <td>
