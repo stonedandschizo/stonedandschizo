@@ -90,9 +90,7 @@ $\color{#f9ff89}{\textsf{blah blah blah}}$
       </tr>
   </table>
 
-  <a href="https://vgen.co/dearwoes">
- <img src="https://64.media.tumblr.com/e5ee6e4bbba8aedb72b1738bc413ad43/801b570c56b64d69-ed/s640x960/fde3f90be0d1e27d8e4aa3202fffd93022a84fa9.gifv" width="305" align="right">
-   </a>
+
 
 
 
@@ -102,7 +100,9 @@ $\color{#f9ff89}{\textsf{blah blah blah}}$
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rudrrlz67xzwmkh6eq4jqfcwv&cover_image=true&theme=natemoo-re&show_offline=false&background_color=053a48&interchange=false&profanity=false&hide_remaster=false&bar_color=0ff207&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
          
 
-
+  <a href="https://vgen.co/dearwoes">
+ <img src="https://64.media.tumblr.com/e5ee6e4bbba8aedb72b1738bc413ad43/801b570c56b64d69-ed/s640x960/fde3f90be0d1e27d8e4aa3202fffd93022a84fa9.gifv" width="305" align="right">
+   </a>
 
 
 
