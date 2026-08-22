@@ -70,10 +70,6 @@ $\color{#f9ff89}{\textsf{blah blah blah}}$
 
    <img src="https://i.imgur.com/7AypqAy.gif" width="320" align="right">
 
-   <a href="https://vgen.co/dearwoes">
- <img src="https://64.media.tumblr.com/e5ee6e4bbba8aedb72b1738bc413ad43/801b570c56b64d69-ed/s640x960/fde3f90be0d1e27d8e4aa3202fffd93022a84fa9.gifv" width="315" align="right">
-   </a>
-   
    
    
   
@@ -86,15 +82,22 @@ $\color{#f9ff89}{\textsf{blah blah blah}}$
       $\color{#f9ff89}{\textsf{ i HATE pony dot town and everyone in it amen  }}$<br>
       <img width="25" src="https://64.media.tumblr.com/246fbb9d9cdafb69fcb26c050c4a042b/49942f089b0875df-ed/s75x75_c1/f032518fb829ce1866f3fca5bb26480d74d736a0.gifv">
      <sup>$\color{#f9ff89}{\textsf{    ⊹ ࣪ ˖   catch me on ajc tho i draw and stuff- hicryl03 :3c }}$</sup><br>
-   
-</p>
-
+  
 
 
 </details>
  </td>
       </tr>
   </table>
+
+  <a href="https://vgen.co/dearwoes">
+ <img src="https://64.media.tumblr.com/e5ee6e4bbba8aedb72b1738bc413ad43/801b570c56b64d69-ed/s640x960/fde3f90be0d1e27d8e4aa3202fffd93022a84fa9.gifv" width="305" align="right">
+   </a>
+
+
+
+
+  
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rudrrlz67xzwmkh6eq4jqfcwv&cover_image=true&theme=natemoo-re&show_offline=false&background_color=053a48&interchange=false&profanity=false&hide_remaster=false&bar_color=0ff207&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
          
