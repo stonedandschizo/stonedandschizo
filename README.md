@@ -113,6 +113,10 @@ $\color{#f9ff89}{\textsf{blah blah blah}}$
       <td>
 <details>
 <summary>$\color{#5ce63a}{\textsf{stamp hell}}$</summary>
+
+  https://github.com/user-attachments/assets/66eb8af2-a543-4a9c-b5e0-e6f8ec449b23
+
+ 
 <p align="center">
 <img width="80" src="https://64.media.tumblr.com/24dfdb46187161691d44e7819e740221/3671a26edef10d5d-bc/s100x200/2e00a49b106c65faa48361518ef6c03047ddc1ef.webp"
 </p>
@@ -387,7 +391,7 @@ $\color{#f9ff89}{\textsf{blah blah blah}}$
 
 
 
- https://github.com/user-attachments/assets/66eb8af2-a543-4a9c-b5e0-e6f8ec449b23
+
  
 
 
