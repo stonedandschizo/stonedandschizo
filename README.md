@@ -60,7 +60,7 @@ $\color{#f9ff89}{\textsf{blah blah blah}}$
  <br><sub> <a href="https://arab.org/click-to-help/palestine/"> <italic> Do your daily clicks! <italic> </a></sub>
 </p>
 
-[commissions](https://seraphimblade.carrd.co/) + [ata](https://seraphimblade.atabook.org) + [strawpage](https://jakeinoffmuller.straw.page) + [pt](https://patreon.com/SeraphimBlade?utm_medium=clipboard_copy&utm_source=copyLink&utm_campaign=creatorshare_creator&utm_content=join_link)
+[commissions](https://seraphimblade.carrd.co/) + [ata](https://seraphimblade.atabook.org) + [strawpage](https://buckcashman.straw.page/) + [pt](https://patreon.com/SeraphimBlade?utm_medium=clipboard_copy&utm_source=copyLink&utm_campaign=creatorshare_creator&utm_content=join_link)
 
 </details>
  </td>
